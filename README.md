@@ -5,4 +5,6 @@
 
 [Speed up Innovation with Design Thinking | Guido Stompff | TEDxVenlo](https://www.youtube.com/watch?v=ZBxZC9I6xyk)
 
+[Design Thinking and Innovation At Apple](#https://www.youtube.com/watch?v=ir3E-TEUk48)
+
 
